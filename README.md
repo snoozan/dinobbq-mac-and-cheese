@@ -22,6 +22,7 @@
 * 1 1⁄2 lbs elbow macaroni
 * 8 ounces shredded cheddar cheese
 * 2 tablespoons pecorino romano cheese
+* (Optional) Dinosaur BBQ Cajun Foreplay spice mix
 
 ## DIRECTIONS
 
@@ -30,4 +31,4 @@
 3. Cook 1 1/2 pounds of dried elbow macaroni in boiling water, according to manufacturer's instructions. Cook until al dente, not completely soft.
 4. Combine hot, cooked pasta and sauce in large mixing bowl; stir well to combine. Pour entire mixture into a greased 10-inch-by-12-inch pan (or a 9-inch-by-13-inch one). Top with 8 ounces. of shredded cheddar cheese and 2 tablespoons of Pecorino Romano cheese.
 5. Place under broiler until top is golden brown and bubbling. Serve immediately.
-6. (Optional) Dash servings with Dinosaur BBQ Cajun Foreplay spice mix.
+6. (Optional) Dash servings with spice mix (or other seasonings to taste).
